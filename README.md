@@ -1,1 +1,1 @@
-# insta-and-snapchat-filters
+# Insta-and-Snapchat-Filters
